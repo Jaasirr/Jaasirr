@@ -1,0 +1,4 @@
+- Hellllo! I am Jaasir :3
+- I like to code
+- I am interested in gaming
+- I dunno what to add anymore
